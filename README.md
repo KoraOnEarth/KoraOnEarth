@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KoraOnEarth
+- 👀 I’m interested in gaming development
+- 🌱 I’m currently learning in SUAI (Sanit-Petersburg).
+- 📫 How to reach me : https://vk.com/koraonearth
